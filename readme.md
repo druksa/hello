@@ -2,13 +2,11 @@
 
 we just commit html to trainig my git account
 
-kjbkbkjb kj kjkj
-lkjnkjbk djd w
- kmlkfnwlk
 
- jnkjnkjk
- k
+ds sddsds 
 
- kjbkbjkjb
+ds ds ss
 
- rhrhr
+sd dssfsdfsdf sd fsdsdf
+
+17
